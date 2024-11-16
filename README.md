@@ -1,1 +1,1 @@
-# hello-world
+My namde is Philip. A graduate in Electrical/Electronics Enigneering from Alex-Ekwueme Federal University Ndufu Alike Ebonyi State. I am passionate about being a Web Dwveloper and working with a team with the same mindset of making the worl a better place through our efforts.
